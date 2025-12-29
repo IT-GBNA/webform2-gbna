@@ -1,0 +1,1 @@
+Check la procédure sur confluence : https://gbnadsih.atlassian.net/wiki/spaces/PROJ/blog/2024/04/25/1003225093/Serveur+de+formation+-+Axe+cybers+curit
